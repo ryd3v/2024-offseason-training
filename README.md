@@ -29,11 +29,13 @@ methods [New Improved and Beyond DVD](https://youtube.com/playlist?list=PL34s-yG
 ### Days
 
 I train every day except Sunday, I take a rest day when needed, but cycle through the program in order. Chest, Back,
-Shoulders, Arms, Traps, and Legs. If you need a extra day off, don't sweat it, but don't, not go because you're lazy.
+Shoulders, Arms, Traps, and Legs. If you need an extra day off, don't sweat it, but don't, not go because you're lazy.
 Some of my best workouts have been on days I didn't feel like going.
 
 ### Diet
 
-90% is diet, so make sure that's on point. I'll post my diet later on, basically I'm doing 300g of carbs and protein
-now, and 120g fats. 
+90% is diet, so make sure that's on point.
+I'll post my diet later on, basically I'm doing 300g of carbs and 300g of
+protein per day, and approximately 120g fats.
+This is an Off season Diet. 
 
