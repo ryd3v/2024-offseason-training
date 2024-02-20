@@ -10,9 +10,8 @@
 
 - Incline bench barbell
 - Flat bench
-- Peck deck or flys, or crossovers 
+- Peck deck or flys, or crossovers
 - Pullovers
-
 
 ## Back n Calves
 
@@ -23,7 +22,7 @@
 
 - Seated calve raise
 - Standing calve raise
- 
+
 ## Shoulders
 
 - Seated side lat raise
@@ -36,6 +35,12 @@
 - Close grip bench press
 - Overhead tri extentions
 
+
+- Biceps curl
+- Preacher curls
+- Concentration curls
+
+
 - Seated calve raise
 - Standing calve raise
 
@@ -47,11 +52,13 @@
 ## Legs
 
 Quads
+
 - Extentions
 - Leg press
 - Hack squats
 
 Hams
+
 - Leg curls (seated)
 - Stiff leg deadlifts
 - Standing leg curls
