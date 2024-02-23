@@ -25,9 +25,10 @@
 
 ## Shoulders
 
-- Seated side lat raise
-- Shoulder press
-- Rear pec deck or dumbbell raise
+- Machine Shoulder Press
+- EZ-bar Front Raise
+- Lateral Raises
+- Rear Delt Fly (Cable or machine)
 
 ## Arms n Calves
 
